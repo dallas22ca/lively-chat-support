@@ -1,2 +1,2 @@
 # Pari Sportif & tipster
-https://www.martin-gale.io
+https://www.majeni.fr
